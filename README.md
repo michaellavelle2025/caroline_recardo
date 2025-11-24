@@ -1,2 +1,1 @@
-# caroline_recardo
-Caroline Recardo
+# Caroline Recardo (née Thompson)
