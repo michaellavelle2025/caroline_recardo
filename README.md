@@ -1,4 +1,4 @@
-# Caroline Recardo (née [Thompson)
+# Caroline Recardo (née Thompson)
 
 * Childhood friend of [Judi Hunter (née Lavelle)](https://github.com/michaellavelle2025/judi_hunter)
   
